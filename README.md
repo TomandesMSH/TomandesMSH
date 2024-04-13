@@ -8,4 +8,5 @@ whats up sigmas
 - my yappery is in czech and english
 - i have dementia and brainrot
 here is my 100% proffesional website
+
 tomandes.wixsite.com/tomandes
