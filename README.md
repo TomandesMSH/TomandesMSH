@@ -1,8 +1,7 @@
-- 👋 Hi, I’m @TomandesMSH
-- 👀 I’m interested in making some cool undertale/deltarune fangames... but im still just learning code
-
-- Learning: Python.
-
-- I can do simple shit :D
-- 📫 How to reach me? Welp! use my instagram: Spamtons_Manager (yes i am deltarune page) or my Discord server!
-- www.tiny.one/gamingdiscord
+- whats up sigmas
+- ive gyatt to learn python
+- im learning python
+- python (the snake)
+- also uh im a big toby fox meat rider
+- uhh undertale fangame when?????
+- uhhhhhhhhhhhhhhhh python?
